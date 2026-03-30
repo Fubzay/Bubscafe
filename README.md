@@ -1,2 +1,2 @@
 # bubscafe.github.io
-Bubs cafe new website 
+Bubs Cafe new and improved website from Kolton George. 
